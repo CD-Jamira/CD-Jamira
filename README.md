@@ -38,6 +38,6 @@ One of my biggest goals is to become a well-paid software engineer. I'm passiona
 * **Fruit on pizza?** No. I enjoy the savory taste of pizza
 * **My hometown:** Chester, PA
 * **Sports:** I enjoy watching all sports
-* ****My favorite GIF**: 
+* **My favorite GIF**: 
 
 ![dancing](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExOHh2eTBldnoyZXZxOTY1YjRoaW45ZmV6ZWdoYjl6cDcwbHJtZ3EyMiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/1GrsfWBDiTN60/giphy.gif)
