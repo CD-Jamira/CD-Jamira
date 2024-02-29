@@ -4,7 +4,8 @@
  I consider myself a well balanced individual that enjoys working hard and unwinding on a carribean island. Traveling is one of my favorite hobbies along with rock climbing and excersing. I'm a firm believer in the importance of family bonds and cherish every moment spent with my loved ones. Whether it's cozy movie nights at home or exciting outdoor adventures, family time is always at the top of my priority list.
 
 ### My work Day:👩🏾‍💻
-Maintaining regular work hours from 9 AM to 5 PM is crucial for me to strike a balance between my professional aspirations and personal life adventures. However, my mornings are especially important as I am an early riser, typically starting my day around 4 AM. During these early hours, I prioritize self-care to set a positive tone for the day ahead.![](https://qph.cf2.quoracdn.net/main-qimg-8f663bef3e17372b76fb5804c292ae7e-lq)
+Maintaining regular work hours from 9 AM to 5 PM is crucial for me to strike a balance between my professional aspirations and personal life adventures. However, my mornings are especially important as I am an early riser, typically starting my day around 4 AM. During these early hours, I prioritize self-care to set a positive tone for the day ahead.
+![](https://qph.cf2.quoracdn.net/main-qimg-8f663bef3e17372b76fb5804c292ae7e-lq)
 
 
 ### What’s the best way to communicate with me?
